@@ -1,4 +1,4 @@
-## Hi stranger :blush: 👋
+## Hello, and welcome to my GitHub :blush: 👋
 
 I'm a biologist exploring the fascinating world of plant genomics :seedling::woman_technologist:, with a special interest in subtropical and Mediterranean crops and their wild relatives :avocado: :mango: :grapes:.  
 
