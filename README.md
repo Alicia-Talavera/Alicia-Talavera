@@ -1,4 +1,4 @@
-## Hi stranger :) 👋
+## Hi stranger :blush: 👋
 
 I'm a biologist exploring the fascinating world of plant genomics :seedling::woman_technologist:, with a special interest in subtropical and mediterranean crops and wild relatives :avocado: :mango: :grapes:.  
 
