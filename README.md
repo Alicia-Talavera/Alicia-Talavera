@@ -1,6 +1,6 @@
 ## Hi stranger :blush: 👋
 
-I'm a biologist exploring the fascinating world of plant genomics :seedling::woman_technologist:, with a special interest in subtropical and Mediterranean crops and wild relatives :avocado: :mango: :grapes:.  
+I'm a biologist exploring the fascinating world of plant genomics :seedling::woman_technologist:, with a special interest in subtropical and Mediterranean crops and their wild relatives :avocado: :mango: :grapes:.  
 
 <!--
 **Alicia-Talavera/Alicia-Talavera** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
